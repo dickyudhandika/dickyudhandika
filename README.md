@@ -1,3 +1,5 @@
-hey, nice to meet you. dicky here. currently working on [Emotiv](https://www.emotiv.com), building [getlumyra.com](https://getlumyra.com)
+hey, dicky here. designer at [Emotiv](https://www.emotiv.com), building [getlumyra.com](https://getlumyra.com)
 
-im happy to build stupid solutions. send me a dm on [![Twitter](https://img.shields.io/twitter/follow/ddkydesign?label=Follow&style=social)](https://x.com/ddkydesign)
+i love stupid solutions that somehow work
+
+got a weird little problem? dm me on [![Twitter](https://img.shields.io/twitter/follow/ddkydesign?label=Follow&style=social)](https://x.com/ddkydesign) →
